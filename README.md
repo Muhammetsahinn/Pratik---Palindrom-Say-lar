@@ -1,0 +1,1 @@
+# Pratik---Palindrom-Say-lar
